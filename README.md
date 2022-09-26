@@ -1,4 +1,4 @@
-<img src="https://github.com/nyein111/nyein111/blob/main/8b3ccf213c865066fcc034e427b0efc0.gif?raw=true"/>
+<img src="https://c.tenor.com/O2-Vi4z6eqsAAAAC/detective-conan-shinichi-kudo.gif"/>
 
 ### Hi there 👋
 
